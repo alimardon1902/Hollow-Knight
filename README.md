@@ -222,4 +222,4 @@ Hollow Knight is available as a full free version with all features and updates 
 Don't miss out on this breathtaking journey—**download Hollow Knight free today and embark on your adventure!**
 
 ---
-**Last updated:** 2026-11-10 15:53:06 UTC
+**Last updated:** 2026-11-10 21:31:15 UTC
